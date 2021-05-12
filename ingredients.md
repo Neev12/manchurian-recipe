@@ -1,0 +1,1 @@
+need sauce,chilli pepper,cabbage,cauliflower,soy sauce,corn flour,garlic,onion,black pepper,spring Onion,ginger,maida,salt,carrot,ketchup,vegetable leaf
